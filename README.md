@@ -1,2 +1,2 @@
 # Jewhite711.github.io
-My Website for Next Chapter
+My Website for NC
