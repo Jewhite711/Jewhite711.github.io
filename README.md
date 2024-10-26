@@ -1,2 +1,3 @@
 # Jewhite711.github.io
-My Website for NC
+My Website for NextChapter
+Halloween Haunted House
